@@ -1,0 +1,1 @@
+# magzinetop.github.io
